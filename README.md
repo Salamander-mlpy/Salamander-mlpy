@@ -2,7 +2,7 @@
 - 👀 I’m interested in machine learning
 - 🌱 I’m currently learning machine learning and python
 - 💞️ I’m looking to collaborate on ML
-- 📫 How to reach me by email kanat.kozhaniyazov of mobile +77773799772
+- 📫 How to reach me by email kanat.kozhaniyazov@gmail.com of mobile +77773799772
 - 😄 Pronouns: Salamander
 - ⚡ Fun fact: There is a high chance that I will regret this.
 
